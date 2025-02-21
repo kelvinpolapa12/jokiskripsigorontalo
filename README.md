@@ -1,0 +1,2 @@
+# jokiskripsigorontalo
+JOKI SKRIPSI GORONTALO
